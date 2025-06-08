@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **App development and Generative AI*
 
-- 📫 How to reach me **singhsurabhi2004@gmail.com**
+- 📫 How to reach me :- **singhsurabhi2004@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1Rz4-WYhCb3-xXwGdinQRxfY6FNr6g4DO/view?usp=sharing](https://drive.google.com/file/d/1Rz4-WYhCb3-xXwGdinQRxfY6FNr6g4DO/view?usp=sharing)
 
