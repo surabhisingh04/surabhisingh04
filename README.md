@@ -8,8 +8,7 @@
 
 - 📫 How to reach me :- **singhsurabhi2004@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Rz4-WYhCb3-xXwGdinQRxfY6FNr6g4DO/view?usp=sharing](https://drive.google.com/file/d/1Rz4-WYhCb3-xXwGdinQRxfY6FNr6g4DO/view?usp=sharing)
-
+- 📄 Know about my experiences https://drive.google.com/file/d/1tDiqNswNT8jWtPzrfYMKujhI-Qied0gF/view?usp=sharing
 - ⚡ Fun fact **I fall in love with every window seat I sit on—no matter the ride! ✈️🚌💛**
 
 <h3 align="left">Connect with me:</h3>
